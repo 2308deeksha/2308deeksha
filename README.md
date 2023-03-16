@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @deekshavadla
 - 👀 I’m interested in learning and playing with the new things
 - 🌱 I’m currently learning coding and run a youtube channel @deekshaoriginals
-- 💞️ I’m looking to collaborate on all streams in which i get profit
 - 📫 How to reach me 2308deeksha@gmail.com
 
 <!---
